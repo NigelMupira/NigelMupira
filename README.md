@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything that will help improve my skills or introduce me to something new
 - 📫 How to reach me:
 - * Email: nigelmupira@gmail.com
-  * Linked In: @Nigel Mupira
+  * Linked In: [@Nigel Mupira](https://www.linkedin.com/in/nigel-mupira-947691296)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love anime and video gaming
 
