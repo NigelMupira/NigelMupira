@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BugHunterXYZ
+- 👋 Hi, I’m @NigelMupira
 - 👀 I’m interested in software development and ethical hacking
 - 🌱 I’m currently studying towards my degree in Information Security and Assurance
 - 💞️ I’m looking to collaborate on anything that will help improve my skills or introduce me to something new
